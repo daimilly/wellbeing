@@ -1,4 +1,5 @@
-### 3 things I can do to help my wellbeing
-Take Proper Sleep
-Find and Practice New Hobbies
-Eat a Balanced Diet
+### 4 things I can do to help my wellbeing
+Expose Your Body to Sunlight
+Exercise Daily
+Stay Away from Smoking and Alcohol
+Laugh and Enjoy
